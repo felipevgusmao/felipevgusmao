@@ -4,7 +4,7 @@ Welcome to my GitHub profile! I'm a entrepreneurship enthusiast, always explorin
 
 ### Contacts
 
-- 🌐 My LinkedIn: linkedin.com/in/felipe-gusmão-a5b761198
+- 🌐 [My LinkedIn](linkedin.com/in/felipe-gusmão-a5b761198)
 - 📫 Personal Email: felipevgusmao1@gmail.com
 
 #### Thanks for visiting!
